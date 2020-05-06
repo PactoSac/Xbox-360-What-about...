@@ -5,4 +5,4 @@ it's a script to create the xbox copypasta, "Xbox 360? What about Xbox One, Xbox
 
 
 
-made as a joke
+made it as a joke
